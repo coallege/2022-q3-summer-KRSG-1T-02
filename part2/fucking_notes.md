@@ -1,0 +1,5 @@
+- Reading isn't about the author somehow just injecting their thoughts into your brain (though the best authors are good at this). True understanding happens when you're able to fill in the gaps of what the authors have left out.
+- Figuring out useless information allows you to read more effectively. Go figure.
+- Some textbooks are about shoving as much information down your throat as possible
+- Read with intention (predatory reading)
+- Forgetting things is normal
